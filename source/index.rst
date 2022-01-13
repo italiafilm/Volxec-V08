@@ -22,7 +22,7 @@ As Langenkamp, herself says in "New Nightmare," "Each child knows what freddy's 
 
 This all goes to say that "New Nightmare" may really be the main Freddy Krueger film I at any point saw. As it were, that might have left me remarkably prepared for its sluggish trickle of Freddy as legends. The reason includes Freddy getting over "out of movies, into our existence." Craven, Langenkamp, Shaye, and their kindred establishment veterans Robert Englund and John Saxon all play themselves. Englund shows up while Langenkamp is guesting on a syndicated program; he puts on a big show for the group, which is loaded up with fans in Freddy outfits.
 
-`Watch Dune Full Movie <https://sites.google.com/muvizone.us/watch-dune-full-movie-free>`_
+`Watch Venom 2 Streaming ITA Full Movie <https://noti.st/venom-2-streaming-ita-film>`_
 
 `Watch Halloween Kills Full Movie <https://sites.google.com/muvizone.us/halloween-kills-full-movie-fre>`_
 
